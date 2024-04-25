@@ -26,7 +26,7 @@ PMO - Analista de projetos com certificação PSM I, KSD, e 3 anos de experiênc
 </br>
 
 
-Técnico automotivo - Técnico eletro/eletrônico experiência em manutenção automotiva linha leve.
+Técnico automotivo - Técnico com experiência em manutenção eletro/eletrônico automotiva linha leve, alem de trabalho e gerenciamento de equipes, contato com fornecedores e clientes.
 
 ### Graduação:
 
